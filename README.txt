@@ -6,3 +6,8 @@ Beleza?!
 Bão também
 
 valeu-falou
+
+que bom cara
+
+duas palavrinhas:
+Para Bens
